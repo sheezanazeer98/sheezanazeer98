@@ -3,6 +3,6 @@
 
 - 💬 Ask me about **Web and Blockchain Development**
 
-- 📫 How to reach me **sheezanazeer98@gmail.com**
+- 📫  reach me **sheezanazeer98@gmail.com**
 
 
